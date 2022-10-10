@@ -17,7 +17,7 @@
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I would love to work with same minded people like me as a team.
 
-[![Linkedin: swadeshpatra](https://img.shields.io/badge/-swadeshpatra-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://https://www.linkedin.com/in/swadesh-patra-037096140?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BZXoQiOBUQ9mxVoIvm%2FS9sQ%3D%3D/)](https://www.linkedin.com/in/https://www.linkedin.com/in/swadesh-patra-037096140/)
+[![Linkedin: swadeshpatra](https://img.shields.io/badge/-swadeshpatra-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://https://www.linkedin.com/in/swadesh-patra-037096140 (https://www.linkedin.com/in/https://www.linkedin.com/in/swadesh-patra-037096140/)
 
 
 
