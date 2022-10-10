@@ -14,6 +14,7 @@
 - 🌱 I’m currently learning about Full Stack Development.
 - 🤔 I’m looking for help with career guidance.
 - 📫 How to reach me: [Linkedin - @swadeshpatra]https://www.linkedin.com/in/swadesh-patra-037096140
+*swadesh.patra961gmail.com
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I would love to work with same minded people like me as a team.
 
